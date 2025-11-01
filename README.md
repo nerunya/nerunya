@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @imneko0
 - 👀 I’m interested in Cat.
 - 🌱 I’m currently learning Cat.
-- 💞️ I’m looking to collaborate on @imnyang.
-- 📫 How to reach me neko@imnya.ng
+- 💞️ I’m looking to collaborate on Something.
+- 📫 How to reach me nerunyaa@icloud.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm not neko!
 
