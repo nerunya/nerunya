@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @imneko0
+- 👋 Hi, I’m nerunya
 - 👀 I’m interested in Cat.
 - 🌱 I’m currently learning Cat.
 - 💞️ I’m looking to collaborate on Something.
